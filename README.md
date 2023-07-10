@@ -1,2 +1,2 @@
 
-![[https://github.com/kubra-m11/LinkedinClone/issues/1#issue-1796666404]](https://github.com/kubra-m11/LinkedinClone/issues/1#issue-1796666404)(https://github.com/kubra-m11/LinkedinClone/issues/1#issue-1796666404)
+![LinkedinClone](C:\Users\kmrt3\OneDrive\Resimler\Ekran Görüntüleri\linkedinClone\Opera Anlık Görüntü_2023-07-10_150705_127.0.0.1.png)
